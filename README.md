@@ -1,0 +1,2 @@
+# fuji
+picture of fuji
